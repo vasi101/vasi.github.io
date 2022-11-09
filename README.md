@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vasi101
 - 👀 I’m interested in mechine learning,gaming and game developing,
-- 🌱 I’m currently learninglopment
+- 🌱 I’m currently a beginner
 - 📫 contact:
               instagram:kewatbhai
               discord:vasibaba10
